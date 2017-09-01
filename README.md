@@ -1,0 +1,2 @@
+# inspire
+Inspiring photography locations
